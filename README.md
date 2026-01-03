@@ -1,3 +1,3 @@
 # LoveProject
-https://N8ik20.CUTIEE.IO.io
+https://N8ik20.CUTIEE.IO
 
